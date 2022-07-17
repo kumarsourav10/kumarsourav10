@@ -7,4 +7,4 @@
 - 💬 Ask me about css , js .
 - 📫 How to reach me: souravkumarji99@gmail.com
 - 😄 Pronouns: He/his
-- ⚡ Fun fact: I Love 🎵 ⚽ 🕺 🍕 ☕ ..
+- ⚡ Fun fact:  🎵 ⚽ 🕺 🍕 ☕ ..
