@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with Mongo db, JSon .
 - 💬 Ask me about css , js .
 - 📫 How to reach me: souravkumarji99@gmail.com
-- 😄 Pronouns: He/his
+- 😄 Pronouns: He/him
 - ⚡ Fun fact:  🎵 ⚽ 🕺 🍕 ☕ ..
